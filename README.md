@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ben-fils
+- 👀 I’m interested in coding and gaming
+- 🌱 I’m currently learning dev web, POO and IA
+- 📫 How to reach me https//:www.x.com/@glappyA
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i hate school with all my being.
